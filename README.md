@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @khanfarhana
-- 👀 I’m interested in ...
+- 👀 I’m interested in learning new features
 - 🌱 I’m currently learning iOS Development Course
 - 📫 How to reach me @khanfarhana2014@gmail.com
 
