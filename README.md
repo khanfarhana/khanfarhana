@@ -2,4 +2,4 @@
 - 📖 I’m interested in learning new features.
 - 👩‍🎓 I completed post graduation in Msc.IT.
 - 💻 I’m currently learning iOS Development.
-- ✉ How to reach me @khanfarhana2014@gmail.com, LinkedIn @khanfarhana2014@gmail.com.
+- ✉ How to reach me @khanfarhana2014@gmail.com, LinkedIn - https://www.linkedin.com/in/farhanakhan7    
