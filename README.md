@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @khanfarhana
 - 📖 I’m interested in learning new features.
 - 👩‍🎓 I completed post graduation in Msc.IT.
-- 💻 I’m currently learning iOS Development.
+- 💻 iOS Developer.
 - ✉ How to reach me @khanfarhana2014@gmail.com, LinkedIn - https://www.linkedin.com/in/farhanakhan7    
